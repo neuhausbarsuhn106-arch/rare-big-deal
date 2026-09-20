@@ -316,6 +316,7 @@ Free & open-source.
 | 🤖 | [ShowUpInAI](https://showupinai.com) | Get Cited in ChatGPT and more! We push every new page to Bing, helping AI assistants cite your site. | **25% OFF** with code **BLACKFRIDAY25** | 2025-12-01 |
 | 💥 | [TranscriptionPlus](https://transcription.plus) | Advanced transcription with 99% accuracy | 50% OFF | 2025-12-05 |
 | 🎥 | [inReels.ai](https://www.inreels.ai/?utm_source=rarebigdeal) | Create videos in seconds using AI. Turn text, PDFs, or images into videos. Repurpose content for YouTube, TikTok, Reels, and more. | **50% OFF on Yearly Plans** with code **BLACKFRIDAY2025** |
+| 🎬 | [Faceless Reels AI](https://facelessreels-ai.com/) | Review-first AI studio for creating polished faceless vertical videos with scripts, narration, scenes, captions, timing, and music. | **Free to use** | |
 | 💥 | [Firsto](https://firsto.co/?utm_source=rarebigdeal) | New Product launch platform where every product gets seen | **20% OFF All Launch & Sponsor Spots** with code **BLACKFRIDAY** |
 | 🎧 | [Audio Video To Text](https://www.audiovideototext.com) | Convert audio and video files to text, PDF, WORD, or SRT. Accurate AI transcription in 98+ languages. Perfect for content creators, journalists, students. | **50% OFF top plan** (get 50 hours for $25) | 2025-12-31 |
 | 🐾 | [PetShot Pro](https://www.petportraitgenerator.ai) | Turn your pet photos into stunning AI pet portraits. Upload pictures of your furry friends, pick from 100+ styles, and get high-quality AI pet art in seconds. | **50% OFF on all plans** (no coupon code required) | 2025-12-31 |
